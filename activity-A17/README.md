@@ -51,3 +51,16 @@ A zip lock is used on bags to prevent unauthorised access. It adds an extra laye
 
 A drawer lock is used to secure drawers and protect important items or documents from unauthorised access.
 
+---
+
+##---
+
+
+
+\## 5.Additional Locks Collection
+(LOCKS.jpeg)
+
+
+
+This image shows a collection of different types of locks used in everyday environments, demonstrating various physical security mechanisms.
+
